@@ -1,4 +1,4 @@
-👋 Hi, I’m @tdmdema and I wort at Shellrent
+👋 Hi, I’m @tdmdema and I work at Shellrent
 
 👀 I’m interested in technology, learning new things and much more
 
